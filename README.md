@@ -8,4 +8,4 @@
 
 📫 How to reach me lnicolus86@gmail.com
 
-📌 Hobbies? RPGs such as Burning Wheel and WoD; tabletop games (Settlers of Catan is a must!); sports such as archery; and sci-fi books such as Frank Herbert´s Dune, The Witcher Saga, Ray Bradbury´s works as well as Isaac Asimov´s. Another musts are Stanisław Lem "Solaris", Cixin Liu "The Three Body Problem" and the true gem:	Olaf Stapledon´s "Star Maker".
+📌 Hobbies? RPGs such as Burning Wheel and WoD; tabletop games (Settlers of Catan is a must!); sports such as archery; and sci-fi books such as Frank Herbert´s Dune, the works of Ray Bradbury as well as those of Isaac Asimov´s. Another musts are Stanisław Lem "Solaris", Cixin Liu "The Three Body Problem" and the true gem:	Olaf Stapledon´s "Star Maker".
