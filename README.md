@@ -2,7 +2,7 @@
 
 👀 I’m interested in freelance jobs to complement my experience, moreover, im looking forward to learn other languages and technologies!    
 
-🌱 I’m currently learning fullstack development, and currently giving my last step to front-end at CoderHouse. I work with HTML5, CSS, Sass, NodeJs, Javascript, Jquery, AJAX and Im currently studying React.         
+🌱 I’ve finished learning fullstack development, and currently studying Blockchain technologies & languages to complement my experience as lawyer with smart contracting. I work with HTML5, CSS, Sass, NodeJs, Javascript, Jquery, AJAX, XML, SQL and no SQL Databases, and React.         
 
 💞️ I’m looking to collaborate on nonprofit projects where I can make a positive difference for society.
 
